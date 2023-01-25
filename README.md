@@ -15,7 +15,7 @@
 
 - 📫 Want to grab a cup a coffee and talk ? Reach me on **hagan871@outlook.com**
 
-- ⚡ Fun fact: **I'm pretty good at FIFA🎮**🌇
+- ⚡ Fun fact: **I'm pretty good at FIFA🎮**
 
 ### 🌍: Connect With Me On:
 
