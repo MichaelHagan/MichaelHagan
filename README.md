@@ -9,7 +9,7 @@
 
 - 🌱 I’m upskilling in ASP.Net and building very **Interesting Projects**
 
-- 💬 Ask me about **Node, PostgreSQL, ReactJs, Microservices**
+- 💬 Ask me about **Node, PostgreSQL, ReactJs, ExpressJS**
 
 - 📝 I spend free time playing video games🎮, having fun with family and friends🕺🏾, reading📖 and writing📜 
 
